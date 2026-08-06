@@ -1,4 +1,3 @@
-# nikhilrajgunnala
 # Hi, I'm Nikhil Raj Gunnala 👋
 ### Key Account Manager | Growth & Revenue Strategist | Enterprise Account Expansion
 
